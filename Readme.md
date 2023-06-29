@@ -1,1 +1,3 @@
-Maria Rene Villegas Diaz - Giovanna Mariel Algalarronda Debali 
+Giovanna Mariel Algalarronda Debali 
+Uruguay
+>__<   :)
